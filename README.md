@@ -1,0 +1,2 @@
+# benimdukkan
+Bitirme için
